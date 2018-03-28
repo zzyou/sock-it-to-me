@@ -1,4 +1,3 @@
 # Sock It To Me
 
-Who wants socks at TrailheaDX 2018?
-Justin Harringa
+Who wants socks at TrailheaDX 2018
